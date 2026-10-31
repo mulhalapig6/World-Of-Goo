@@ -215,4 +215,4 @@ World of Goo is available as a **full free version** with all features and updat
 Download World of Goo now and start your adventure! Enjoy the challenge, creativity, and fun that awaits you in this unique puzzle game!
 
 ---
-**Last updated:** 2026-10-31 18:58:57 UTC
+**Last updated:** 2026-10-31 22:21:23 UTC
